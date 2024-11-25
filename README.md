@@ -1,0 +1,2 @@
+# Galeria-admac# exemplo
+# PASTOR
